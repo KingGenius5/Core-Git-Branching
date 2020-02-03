@@ -23,7 +23,7 @@ The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
 George met the Unicorn King who granted him magic powers.
-But it turned out it was just the zookeeper Braus wearing a unicorn costume. He was really into My Little Pony and wanted to express himself as a brony. What a strange way for this adventure to end. George thought he should really get to school.
+But it turned out it was just the zookeeper Braus wearing a unicorn costume. He was really into My Little Pony and wanted to express himself as a brony. What a strange way for this adventure to end. George thought he should really get to school. And that's what Mike the Friendly Koala said!
 
 ## Cast
 
